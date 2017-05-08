@@ -1,2 +1,0 @@
-# Negozio_Bruno
-ascacsacaaasasd
